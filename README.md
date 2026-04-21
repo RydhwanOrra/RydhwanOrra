@@ -64,7 +64,7 @@ Meu objetivo é conquistar minha primeira oportunidade como desenvolvedor até o
 
 ## 📫 Contato
 
-📧 rydhwanorra@icloud.com
+📧 rydhwanorra@icloud.com<br />
 💼 LinkedIn: www.linkedin.com/in/rydhwan-el-ourra-14a0ab160
 
 
